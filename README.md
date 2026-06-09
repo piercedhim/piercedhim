@@ -20,6 +20,6 @@ Basic DNI criteria, 15-, proshippers, endogenic systems, poor communicators, ove
   <p align="center">
 "      FANDOMS I'M IN !!   𓈒    𓈒
 <p align="center">
-phighting, ultrakill, deads end come true, faith, call of duty (mainly ghosts and mw2), guts and blackpowder, frozen soul/dream game, arsenal, combat initiation, roblox admins, maymadness2012, roblox myths, days union arg, mandela catalogue, stanley parable, inscryption, undertale + aus, little nightmares, doki doki literature club, die of death, pwned by 14000, cry of fear, just shapes and beats, limbus company, minecraft, terraria, steve universe, forsaken (only for chance, itrapped, and 1x4's lore tbh, I stopped playing the game and I don't support the devs)
+phighting, ultrakill, deads end come true, faith, call of duty (mainly ghosts and mw2), guts and blackpowder, frozen soul/dream game, arsenal, combat initiation, roblox admins, maymadness2012, roblox myths, days union arg, mandela catalogue, stanley parable, regretevator, inscryption, undertale + aus, little nightmares, doki doki literature club, die of death, pwned by 14000, cry of fear, just shapes and beats, limbus company, minecraft, terraria, steve universe, forsaken (only for chance, itrapped, and 1x4's lore tbh, I stopped playing the game and I don't support the devs)
 <p align="center">
 <img width="2048" height="578" alt="Untitled1291_20260601145455" src="https://github.com/user-attachments/assets/003a566e-1374-448e-ace7-70e0a0310307" />
