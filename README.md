@@ -15,7 +15,7 @@
 <p align="center">
 ̣̣𝒢 　 　⁺ 　DNI𓏼  　 　 𓈒
 <p align="center">
-Basic DNI criteria, 15-, proshippers, endogenic systems, poor communicators, overly sensitive and clingy people.
+Basic DNI criteria, 15-, proshippers, endogenic/traumaendo/willowgenic systems, poor communicators, overly sensitive and clingy people.
     <br><br>
   <p align="center">
 "      FANDOMS I'M IN !!   𓈒    𓈒
