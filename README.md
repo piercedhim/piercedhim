@@ -3,9 +3,6 @@
 <p align="center">
 <img width="500" height="500" alt="Untitled1292_20260601151151" src="https://github.com/user-attachments/assets/a0ebe784-cef8-43f0-8cee-a7d06b94d31f" />
 <p align="center">
-⦂　hyperlaser　　˖　　fictkin𓈒　&　fictive
-<p align="center">
-𓈒　　　hypertana　enthusiast !!
 <img width="2048" height="578" alt="Untitled1291_20260601145449" src="https://github.com/user-attachments/assets/ba25b9aa-a600-49c7-baa8-ba2e086172aa" />
 <p align="center">
 ̣𝒢 　 　⁺ 　BYI𓏼  　 　 𓈒
