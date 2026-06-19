@@ -7,7 +7,7 @@
 <p align="center">
 ̣𝒢 　 　⁺ 　BYI𓏼  　 　 𓈒
 <p align="center">
-17+, mostly alone in PT or with my trio. I freely block + unfriend. Interactions are always welcome, but I’m not interested in befriending or forming close bonds with people. I don’t mind new mutuals though. I’m emotionally distant. I rarely interact first, I’m shy. Not open about my disorders unless close.
+17+, mostly alone in PT or with my trio. C+h is encouraged! Just as long as I'm not with my trio. I freely block + unfriend. Interactions are always welcome, but I’m not interested in befriending or forming close bonds with people. I don’t mind new mutuals though. I’m emotionally distant. I rarely interact first, I’m shy. Not open about my disorders unless close.
     <br><br>
 <p align="center">
 ̣̣𝒢 　 　⁺ 　DNI𓏼  　 　 𓈒
